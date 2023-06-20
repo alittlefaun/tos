@@ -11,8 +11,10 @@ A personalized copy of my Terms and Conditions will be attached to the PayPal in
 
 **4. Design**: Plushie face design is subject to client approval. I can't guarantee 100% accuracy but will use my best effort.
 
-**5. Payment and Shipping**: The quote for a commission plus shipping costs and any custom fees is due prior to shipping. Default shipping is via USPS with insurance, tracking, and optionally, signed delivery. I am not responsible for lost or damaged packages.
+**5. Payment and Shipping**: Full payment for the plush commission plus shipping costs and any custom fees are due prior to shipping. Default shipping is via USPS with insurance, tracking, and optionally, signed delivery. I am not responsible for lost, damaged, or stolen packages.
 
-**7. Refunds/ Cancellations**: If a client cancels once any work has been started, the client forfeits half of the commission quote and the other half will be refunded. If I am unable to complete your commission for any reason, I will issue you a full refund.
+**6. Client Cancellations**: If a client cancels before any progress has started, a full refund will be issued. If a client cancels but fabric has already been ordered, a partial refund less the cost of the fabric will be issued. If a client cancels the commission while their plush is in progress, a partial refund will be made at my own discretion. If a client fails to pay the remainder of the quote and/or does not respond 6 months after the plush is completed, the client forfeits half of the full payment for the plush commission and I reserve the right to find another buyer.
 
-**9. Rights**: I may use image of the plush for advertising.
+**7. Refunds**: If I am unable to complete your commission for any reason, I will issue you a full refund.
+
+**8. Rights**: I may use images of the plush for advertising.
